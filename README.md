@@ -1,2 +1,2 @@
-# Zavr-ni
+# Završni
 Završni
